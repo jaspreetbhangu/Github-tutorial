@@ -1,1 +1,1 @@
-Jaspreet Kaur from Brampton and Student at Loyalist college
+Jaspreet Kaur from Brampton and Professor at Loyalist college
